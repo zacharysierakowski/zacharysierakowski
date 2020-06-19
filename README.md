@@ -1,4 +1,4 @@
-# zacharysierakowski
+# Zachary Sierakowski (Zach Sear-a-cow-ski)
 
 - **Title**: Software Engineer II, GitHub
 - **Timezone**: EST

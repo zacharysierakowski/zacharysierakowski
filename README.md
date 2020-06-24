@@ -16,4 +16,4 @@
 
 ## Little more about me
 
-I have spent my life in Maryland. I grew up in Bel Air (MD), went to college at Towson Universty and am now enjoying time with my fiancee in Baltimore. I'm working from home and own two golden retrievers ([@corona_and_bud](https://www.instagram.com/corona_and_bud/)).
+I have spent my life in Maryland. I grew up in Bel Air (MD), went to college at Towson Universty and am now enjoying time with my fiancee in Baltimore. I'm working from home and own two amazing golden retrievers ([@corona_and_bud](https://www.instagram.com/corona_and_bud/)).

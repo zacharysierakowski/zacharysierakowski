@@ -1,7 +1,7 @@
 # Zachary Sierakowski (Sear-a-cow-ski)
 
 - **Title**: Software Engineer III, GitHub
-- **Timezone**: EST
+- **Timezone**: ET
 - **Pronouns**: he/him
 - **LinkedIn**: [zacharysierakowski](https://www.linkedin.com/in/zacharysierakowski/)
 
